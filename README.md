@@ -2,7 +2,7 @@
 
 **Mod for all Celeste fans <3**
 
-This mod enhances your **OperaGx** and **Celeste **experience by altering** keyboard sounds**, adding new **wallpapers**, and improving **web sounds**, among **other ** things >:)
+This mod enhances your **OperaGx** and **Celeste **experience by altering** keyboard sounds**, adding new **wallpapers**, and improving **web sounds**, among **other** things >:)
 
 I hope you like this mod
 
